@@ -1,1 +1,1 @@
-Link to Download PS2 iso games It will be in 7z file comprised use win rate to decompress to the file Link:https://romsfun.com/roms/playstation-2
+Link to Download PS2 iso games It will be in 7z file comprised use win rar to decompress the file Link:https://romsfun.com/roms/playstation-2
